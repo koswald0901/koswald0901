@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Hello! 🤍
+- I have a B.S.E in Biomedical Engineering from Tulane University 🌊
+- I have a minor in Strategy, Leadership and Analytics 📚
+- I am pursuing a Master's in Biomedical Engineering at Tulane University 🌊
+- I have a German Shorthaired Pointer 🐕 🐶
+- I like to crochet 🧶 wakeboard 🏄🏼‍♀️ and play guitar 🎸
