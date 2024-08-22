@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, I'm Kailee! 🤍
 
 <!--
 **koswald0901/koswald0901** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,7 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Hello! 🤍
 - I have a B.S.E in Biomedical Engineering from Tulane University 🌊
 - I have a minor in Strategy, Leadership and Analytics 📚
 - I am pursuing a Master's in Biomedical Engineering at Tulane University 🌊
